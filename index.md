@@ -3,7 +3,7 @@ Bienvenue sur le site du mariage d'Ambroise et Anne-Cécile
 ## Cérémonie religieuse
 Le 26 octobre 2019 à 11h30, dans l'église de Freigné.
 
-## Adresse bouffe laïque
+## Déjeuner
 Le 26 octobre 2019 après la messe, au domaine du bois d'Andigné
 
 ## Cagnotte
