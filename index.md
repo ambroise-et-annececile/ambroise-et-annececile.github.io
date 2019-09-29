@@ -26,4 +26,4 @@ Plusieurs personnes cherchent encore un plan pour venir à Freigné.
 ## Cagnotte
 [Voici notre cagnotte ](https://paypal.me/pools/c/8i3iT06JLT)
 
-Il n'y a pas de liste de mariage et une urne sera présente le jour J
+Il n'y a pas de liste de mariage
